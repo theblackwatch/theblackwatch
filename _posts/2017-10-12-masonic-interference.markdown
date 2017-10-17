@@ -29,4 +29,4 @@ Clearly, what is being outlined is a way to ensure one's speech is not cursed or
   And they were in all two hundred; who descended in the days of Yared on the summit of Mount Hermon, and they called it Mount Hermon, because they had sworn and bound themselves by imprecations upon it.
   (1Enoch 6:1-6)
 
-For more info regarding the intricacies of the oath, pease see this [link.](http://nazarenespace.com/profiles/blogs/secrets-of-the-oath-that-binds-the-fallen-angels)
+For more info regarding the intricacies of the oath, please see this [link.](http://nazarenespace.com/profiles/blogs/secrets-of-the-oath-that-binds-the-fallen-angels)
