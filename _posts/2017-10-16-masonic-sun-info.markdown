@@ -7,11 +7,11 @@ external-url:
 categories: Basics
 ---
 
-If you have not read the previous post on Masonic Blood Oaths, I suggest you do so [here.](../2017-10-12-masonic-interference.markdown)
+If you have not read the previous post on Masonic Blood Oaths, I suggest you do so [here.](http://theblackwatch.info/blog/2017/10/12/masonic-interference/)
 
 Once the throat is sufficiently locked by a blood oath, it is relatively trivial to institute Pagan sun Worship.
 
-A Masonic Lodge facs the East, it is said, like a temple of Solomon. However, unlike a Temple of Solomon, there is no sun in the east but instead a person called the Master of the Lodge who administers everything. This is nothing but the old pagan sun king rituals of Norway, France, and elsewhere.
+A Masonic Lodge faces the East, it is said, like a temple of Solomon. However, unlike a Temple of Solomon, there is no sun in the east but instead a person called the Master of the Lodge who administers everything. This is nothing but the old pagan sun king rituals of Norway, France, and elsewhere.
 
 A Temple of Solomon worships neither the sun nor Solomon but YHVH and sees everything else as a representation of His kingdom. A pagan sun temple attempts to make a God of the sun itself, and all Masonic Lodges do this instead to men, which is a far graver matter.
 
