@@ -7,7 +7,7 @@ external-url:
 categories: Basics
 ---
 
-If you have not read the previous post on Masonic Blood Oaths, I suggest you do so [here.](http://theblackwatch.info/blog/2017/10/12/masonic-interference/)
+If you have not read the previous post on Masonic Blood Oaths, I suggest you do so [here.](/blog/2017/10/12/masonic-interference/)
 
 Once the throat is sufficiently locked by a blood oath, it is relatively trivial to institute Pagan sun Worship.
 
