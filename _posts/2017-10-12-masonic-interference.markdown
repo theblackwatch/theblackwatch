@@ -4,7 +4,7 @@ title: Masonic Interference
 date: 2017-10-12 
 comments: false
 external-url:
-categories: Basics
+categories: Masonic Theories
 ---
 
 If one dares to consider the world as a metaphysical entity as well as a physical entity, it is necessary to admit as a starting principle a certain
