@@ -50,5 +50,5 @@ Once we see the pattern, we can understand how it works in various communities a
 
 
 
-[^1]: [https://www.biblestudytools.com/dictionary/phoenicia-phoenicians/] (https://www.biblestudytools.com/dictionary/phoenicia-phoenicians/)
-[^2]: [http://www.bartleby.com/196/79.html] (http://www.bartleby.com/196/79.html)
+[^1]: [https://www.biblestudytools.com/dictionary/phoenicia-phoenicians/](https://www.biblestudytools.com/dictionary/phoenicia-phoenicians/)
+[^2]: [http://www.bartleby.com/196/79.html](http://www.bartleby.com/196/79.html)
