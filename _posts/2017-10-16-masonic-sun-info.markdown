@@ -4,7 +4,7 @@ title: Masonic Sun Rites
 date: 2017-10-17 20:40
 comments: false
 external-url:
-categories: Masonic Theories
+categories: Theories
 ---
 
 If you have not read the previous post on Masonic Blood Oaths, I suggest you do so [here.](/blog/2017/10/12/masonic-interference/)
