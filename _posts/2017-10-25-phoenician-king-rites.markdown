@@ -4,7 +4,7 @@ title: The Rites of the Phoenician Kings
 date: 2017-10-22 19:43
 comments: false
 external-url:
-categories: Ancient Patterns
+categories:Patterns
 ---
 
 If one can identify the patterns of spiritual belief in history, one can find that the mass consciousness still follows them--particularly along ancestral lines. Even though the United States and other countries are considered to be more "melting-pots" in the modern world, there are still tribal affiliations present. It is easiest to see these affiliations from the perspective of Hebrew tribes since those tribes still have an existence although it is intensely jumbled and hard to decipher.
