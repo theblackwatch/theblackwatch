@@ -2,7 +2,7 @@
 
 ---
 layout: post
-title: Mind Control
+title: Monarch Mind Control
 date: 2017-10-28 20:40
 comments: false
 external-url:
