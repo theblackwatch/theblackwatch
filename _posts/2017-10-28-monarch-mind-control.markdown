@@ -6,7 +6,7 @@ title: Mind Control
 date: 2017-10-28 20:40
 comments: false
 external-url:
-categories: Mind Control
+categories: Entrapments
 ---
 
 In the old days, there was a bear Goddess in the regions of Gaul and France. This Bear Goddess was worshiped by Druids and Gauls--which later moved into Rome and Greece. In Greece the Bear Goddess became known as Diana or Artemis and took on Mercury overtones in Rome.
