@@ -29,4 +29,4 @@ Perhaps somewhat surprising is that the Celtic tribes were likely a lost Israel 
 
 To break the conditioning, all that is needed is to relate to the mother again as the center of the family and the children as being something other than food for hungry sacrifice. Every other value system based upon this conditioning which unfortunately includes most television and video games is likely to be an abomination. Every man or woman who joins the military or trades her family for money or her friends for fame is serving Baal and is likely suffering from such conditioning. We have a duty to speak against it where we can, and to put an end to it in whatever manner we can. 
 
-[^1]: http://www.israelite.info/thebiblestoryfiles/hebrew-celtic-connection.html
+[^1]: [http://www.israelite.info/thebiblestoryfiles/hebrew-celtic-connection.html](http://www.israelite.info/thebiblestoryfiles/hebrew-celtic-connection.html)
