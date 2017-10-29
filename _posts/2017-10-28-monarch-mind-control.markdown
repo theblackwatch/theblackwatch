@@ -1,5 +1,3 @@
-            
-
 ---
 layout: post
 title: Monarch Mind Control
