@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Gay Rights and Other So-Called Equality Movements: Part 2
+title: Gay Rights and Other So-Called Equality Movements Part 2
 date: 2017-11-13
 comments: false
 external-url:
@@ -26,7 +26,8 @@ result in war on the plane of the Earth, as such outrageous disregard for the ru
 between male and female, it will be difficult for you to make any other binary decision. The end of this string of actions is to cut off humanity itself from God as 
 the morality outlined by God is defied. (How do you pick a husband or wife if you cannot tell whether the person in question is male or female?) 
 
-For some lectures on transhumanism--a movement that has to with the androgyny--go[here.](http://www.truefreethinker.com/articles/transhumanism%E2%80%99s-roots-lecture-slippery-slope-postgenderism)
+For some lectures on transhumanism--a movement that has to with the androgyny--go 
+[here.](http://www.truefreethinker.com/articles/transhumanism%E2%80%99s-roots-lecture-slippery-slope-postgenderism)
 
 If you are interested in the occult roots of post-genderism, (androgyny) go [here.](http://illuminatiwatcher.com/the-occult-roots-of-the-postgender-movement/)
  
