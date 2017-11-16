@@ -7,6 +7,8 @@ external-url:
 categories: Entrapments
 ---
 
+
+
 In our first article, we noted some issues within the roots of what drove the modern day gay rights movement. You can find that post [here.]({% post_url 
 2017-11-12-gay-rights-agendas %}) The question was posed why hasn't this particular movement been called out as being problematic as it has been constructed? Surely if 
 we were dealing with people who merely wanted to address that there are other forms of love we should expect the basis of the argument to come from love, not organized 
